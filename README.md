@@ -1,2 +1,2 @@
 # worldADS
-full  ads block host
+better ???
